@@ -1,0 +1,1 @@
+# mindex_case_study
